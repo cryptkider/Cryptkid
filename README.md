@@ -9,4 +9,3 @@ I am just developping
 
 
 ### Loading........
-any questions please e-mail to changfengwhy@gmail.com
